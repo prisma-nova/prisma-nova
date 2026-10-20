@@ -1,5 +1,5 @@
-<h1 align="center">Hi 👋, I'm Prism_</h1>
-<h3 align="center">A developer in development from Mexico</h3>
+<h1 align="center">hi !, soy Prism_</h1>
+<h3 align="center">un programador en desarrollo de mexico</h3>
 
 - 🔭 I’m currently working on **Java**
 
