@@ -5,17 +5,17 @@
 
 - 🌱 I’m currently learning **Python**
 
-- 👯 I’m looking to collaborate on **school**
+- 👯 I’m looking to collaborate on **escuela**
 
-- 🤝 I’m looking for help with **school**
+- 🤝 I’m looking for help with **escuela**
 
 - 👨‍💻 Prononuns: [he/they](he/they)
 
-- 💬 Ask me about **deltarune and drawing**
+- 💬 Ask me about **deltarune y dibujar**
 
-- 📫 How to reach me **don't (for now)**
+- 📫 How to reach me **no lo hagas (por ahora)**
 
-- ⚡ Fun fact **be cringe and be free**
+- ⚡ Fun fact **se cringe y se libre**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
