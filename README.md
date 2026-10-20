@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **deltarune y dibujar**
 
-- 📫 How to reach me **no lo hagas (por ahora)**
+- 📫 How to reach me **https://holidaygirl1225.nekoweb.org/**
 
 - ⚡ Fun fact **se cringe y se libre**
 
